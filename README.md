@@ -1,4 +1,4 @@
-### Hi there !
+### Hi there, I'm Sharon ! :upside_down_face:
 
 | GitHub Stats | GitHub Streak Stats |
 | ------------ | ------------- |
